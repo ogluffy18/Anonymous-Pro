@@ -1,2 +1,0 @@
-# Anonymous-Pro
-Anonymous Pro
